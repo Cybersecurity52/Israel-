@@ -1,2 +1,0 @@
-# Israel-
-Assignment 
